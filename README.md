@@ -1,1 +1,0 @@
-# dmtroyer.github.io
